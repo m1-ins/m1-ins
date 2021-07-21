@@ -1,4 +1,4 @@
-### Hello! 〰️
+### Hello! 💧
 
 My name is INSPIRE (or max), and I am a 20 year old athlete and Computer science student based in Glasgow, Scotland. 🏊
 
